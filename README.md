@@ -1,0 +1,2 @@
+# prog
+apagado de computadora
